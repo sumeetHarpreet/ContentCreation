@@ -1,0 +1,7 @@
+Sikhism is a monotheistic religion that originated in the Punjab region of India in the 15th century. It is based on the teachings of ten gurus who aimed to promote a message of love, equality, and justice for all people, regardless of religion, caste, or gender. The foundation of the Sikh faith is the belief in a single, universal, and timeless God who is the creator and sustainer of the universe.
+
+Sikhs believe in the importance of leading a virtuous life, and emphasize the principles of hard work, honest living, and selfless service to others. The religion also emphasizes the importance of meditation and prayer, as well as regular attendance at the Sikh house of worship, the gurdwara.
+
+One of the most important aspects of Sikhism is the practice of communal worship, where Sikhs gather to sing hymns and listen to religious teachings. The Sikh scriptures, known as the Guru Granth Sahib, play a central role in the religion, and are considered to be the living embodiment of the gurus.
+
+Sikhs are known for their strong commitment to social justice and equality, and have a long history of standing up against oppression and tyranny. The religion also places a strong emphasis on the importance of self-defense, and the need to protect the weak and the vulnerable. Sikhism is a religion that promotes compassion, understanding, and respect for all people, and encourages its followers to live lives of service and devotion to God.
